@@ -1,1 +1,0 @@
-# parcial-programaci-n
